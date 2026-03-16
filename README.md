@@ -1,4 +1,4 @@
-<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/1d58828d-d1e7-4dce-b607-8a57de4eb72a" />
+<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/ec05e1f9-9809-4658-b00a-0d0314ed481a" />
 
 > 메구밍을 좋아하는 1인입니다 💥
 
